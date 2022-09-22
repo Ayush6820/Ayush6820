@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ayush
-- 👀 I’m interested in exploring and facing ne challenges in every field
+- 👀 I’m interested in exploring and facing new challenges in every field
 - 🌱 I’m currently learning computer science engineering from Chandigrah University
 - 💞️ I’m looking to collaborate on computer science field
 - 📫 You can reach me by sending a mail on my mail id i.e., ayushrai195@gmail.com
